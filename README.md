@@ -1,4 +1,4 @@
-# Hi, I'm Niam 👋
+# Hi, I'm Niam 👋🏾
 
 **Software engineer · Founder · Building for the web**
 
